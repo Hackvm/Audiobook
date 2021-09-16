@@ -1,1 +1,1 @@
-You have no real enemies.
+Snow Day -- stay home.
