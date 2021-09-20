@@ -1,1 +1,1 @@
-Beware the one behind you.
+Reply hazy, ask again later.
