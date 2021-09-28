@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Tomorrow, you can be anywhere.
