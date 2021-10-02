@@ -1,1 +1,1 @@
-You love peace.
+Do not overtax your powers.
