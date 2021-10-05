@@ -1,1 +1,1 @@
-You will be run over by a bus.
+You have no real enemies.
