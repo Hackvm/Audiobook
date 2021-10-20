@@ -1,1 +1,1 @@
-Just to have it is enough.
+You too can wear a nose mitten.
