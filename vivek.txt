@@ -1,1 +1,1 @@
-Give him an evasive answer.
+Do not overtax your powers.
