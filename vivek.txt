@@ -1,1 +1,1 @@
-Stay the curse.
+You will get what you deserve.
