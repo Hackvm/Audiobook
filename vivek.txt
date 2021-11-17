@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+You will get what you deserve.
