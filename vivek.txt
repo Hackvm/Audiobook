@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Chicken Little was right.
