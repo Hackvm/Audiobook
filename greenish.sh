@@ -1,5 +1,5 @@
 #!/bin/bash
-var=$((1 + $RANDOM % 24))
+var=$((1 + $RANDOM % 30))
 #echo $var
 
 for ((DAYS = 10 ; DAYS <= 31 ; DAYS++)); do
