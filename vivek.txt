@@ -1,1 +1,1 @@
-Is this really happening?
+It's all in the mind, ya know.
