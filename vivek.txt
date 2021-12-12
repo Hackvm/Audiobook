@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You dialed 5483.
