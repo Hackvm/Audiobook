@@ -1,1 +1,1 @@
-Long life is in store for you.
+Many pages make a thick book.
