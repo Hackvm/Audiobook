@@ -1,1 +1,1 @@
-Don't get to bragging.
+You will get what you deserve.
