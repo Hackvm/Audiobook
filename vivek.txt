@@ -1,1 +1,1 @@
-You will wish you hadn't.
+Condense soup, not books!
