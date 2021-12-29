@@ -1,1 +1,1 @@
-Chicken Little was right.
+Are you a turtle?
