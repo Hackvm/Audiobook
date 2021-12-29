@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+You will soon forget this.
