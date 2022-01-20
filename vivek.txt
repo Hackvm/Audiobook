@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+You will wish you hadn't.
