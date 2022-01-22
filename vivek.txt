@@ -1,1 +1,1 @@
-Never give an inch!
+Don't get to bragging.
