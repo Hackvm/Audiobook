@@ -1,1 +1,1 @@
-You have no real enemies.
+You fill a much-needed gap.
