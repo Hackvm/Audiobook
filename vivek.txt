@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Never give an inch!
