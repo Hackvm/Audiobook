@@ -1,1 +1,1 @@
-You dialed 5483.
+There is a fly on your nose.
