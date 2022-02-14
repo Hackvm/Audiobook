@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+Advancement in position.
