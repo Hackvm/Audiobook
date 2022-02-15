@@ -1,1 +1,1 @@
-Stay the curse.
+You will soon forget this.
