@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+There is a fly on your nose.
