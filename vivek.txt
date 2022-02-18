@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+Tomorrow, you can be anywhere.
