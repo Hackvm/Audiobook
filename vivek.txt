@@ -1,1 +1,1 @@
-You will be successful in love.
+Your lucky color has faded.
