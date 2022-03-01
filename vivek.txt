@@ -1,1 +1,1 @@
-Condense soup, not books!
+Avoid reality at all costs.
