@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Avoid reality at all costs.
