@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You are always busy.
