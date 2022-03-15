@@ -1,1 +1,1 @@
-You are always busy.
+You dialed 5483.
