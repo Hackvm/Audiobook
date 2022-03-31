@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You should go home.
