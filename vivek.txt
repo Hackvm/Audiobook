@@ -1,1 +1,1 @@
-Chicken Little was right.
+Be different: conform.
