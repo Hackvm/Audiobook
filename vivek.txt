@@ -1,1 +1,1 @@
-Give him an evasive answer.
+You will soon forget this.
