@@ -1,1 +1,1 @@
-Never give an inch!
+You will never know hunger.
