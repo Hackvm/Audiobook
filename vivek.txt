@@ -1,1 +1,1 @@
-Give him an evasive answer.
+Avoid reality at all costs.
