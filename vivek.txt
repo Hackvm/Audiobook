@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+You will wish you hadn't.
