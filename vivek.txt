@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Stay the curse.
