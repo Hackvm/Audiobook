@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+You will be run over by a bus.
