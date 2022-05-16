@@ -1,1 +1,1 @@
-You will wish you hadn't.
+You will get what you deserve.
