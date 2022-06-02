@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+You have no real enemies.
