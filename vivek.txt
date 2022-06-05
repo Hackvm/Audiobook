@@ -1,1 +1,1 @@
-Just to have it is enough.
+Condense soup, not books!
