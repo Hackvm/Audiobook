@@ -1,1 +1,1 @@
-You are always busy.
+Never give an inch!
