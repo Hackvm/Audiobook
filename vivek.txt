@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+You will be run over by a bus.
