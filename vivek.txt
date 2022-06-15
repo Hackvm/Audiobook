@@ -1,1 +1,1 @@
-Are you a turtle?
+Stay the curse.
