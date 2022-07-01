@@ -1,1 +1,1 @@
-You should go home.
+You now have Asian Flu.
