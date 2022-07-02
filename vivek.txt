@@ -1,1 +1,1 @@
-You will soon forget this.
+Do not overtax your powers.
