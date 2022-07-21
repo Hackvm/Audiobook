@@ -1,1 +1,1 @@
-You now have Asian Flu.
+Give him an evasive answer.
