@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+Never give an inch!
