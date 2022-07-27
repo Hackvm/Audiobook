@@ -1,1 +1,1 @@
-Never give an inch!
+You will be successful in love.
