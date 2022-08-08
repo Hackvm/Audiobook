@@ -1,1 +1,1 @@
-Do not overtax your powers.
+You will be successful in love.
