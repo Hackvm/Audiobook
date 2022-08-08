@@ -1,1 +1,1 @@
-Condense soup, not books!
+Reply hazy, ask again later.
