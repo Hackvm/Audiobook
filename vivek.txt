@@ -1,1 +1,1 @@
-Chess tonight.
+Stay the curse.
